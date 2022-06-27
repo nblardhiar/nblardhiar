@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nblardhiar
-- 👀 I’m interested in mental health issues
+- 👀 I’m interested in mental health issues and human resources
 - 🌱 I’m currently learning psychology
 - 📫 How to reach me nblardhia@gmail.com
 
